@@ -1,1 +1,1 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&letterSpacing=+0.2rem&pause=1000&color=FCE300&center=true&multiline=true&width=500&height=100&lines=I+am+torchbreaker;and+I+will+not+give+up+on+him+.)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&letterSpacing=+0.2rem&pause=1000&color=FCE300&center=true&multiline=true&width=500&height=100&lines=I+am+torchbreaker;and+I+will+not+give+up+on+him+.)](https://git.io/typing-svg)
