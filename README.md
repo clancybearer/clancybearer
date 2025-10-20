@@ -1,1 +1,1 @@
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FCE300&center=true&multiline=true&width=435&lines=I+am+torchbearer;and+I+will+not+give+up+on+him+.)](https://git.io/typing-svg)
